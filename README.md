@@ -7,6 +7,8 @@ I'm not a professional artist (in fact, I'm pretty new to this), but I enjoy dra
 
 Most of the work here is just **practice**, not polished or perfect, but it's part of my learning journey.
 
+Lately I am focusing more on practicing drwaing with pen and paper rather than pixelart due to my studies. It is hard to manage school with two hobbies drawing and pixel art so I deacided to practice pixel art later
+
 ## 🗂 What's Inside
 
 - Simple pixel art sketches
